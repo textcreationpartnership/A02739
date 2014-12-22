@@ -36,38 +36,44 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A plaine and profitable exposition, of the parable of the sower and the seede wherein is plainly set
+SECT. 1. & 2. THe word written, and the word preached, both one.SECT. 3. Nothing to be preached but 
+1. TO THE MOSTREVEREND FATHER IN God, George, Lord Bishop of Chester.
+
 #####Body#####
+
+1. THE DIFFERENCE OF HEARERS. Or an exposition of the parable of the Sower.
 Luk. 8. vers. 11. 12.11. The parable is this. The seede is the word of God.12. And they that are besVers. 12.And they that are beside the way, are they that heare.IN the former verse you haue heard thVers. 14.And that which fell among thornes, are they which haue heard, and after their departure areUerse. 15.But that which fell in good ground, are they which with an honest and good heart heare the
-1. SECT. II.
+1. A POSTSCRIPT, to the Papists in Lancashire.
 
-1. SECT. III.
+    _ SECT. II.
 
-1. SECT. IIII.
+    _ SECT. III.
 
-1. SECT. V.
+    _ SECT. IIII.
 
-1. SECT. VI.
+    _ SECT. V.
 
-1. SECT. VII.
+    _ SECT. VI.
 
-1. SECT: VIII.
+    _ SECT. VII.
 
-1. SECT: IX.
+    _ SECT: VIII.
 
-1. SECT: X.
+    _ SECT: IX.
 
-1. SECT. XI.
+    _ SECT: X.
 
-1. SECT: XII.
+    _ SECT. XI.
 
-1. SECT. XIII.
+    _ SECT: XII.
 
-1. SECT. XIIII.
+    _ SECT. XIII.
 
-1. SECT: XV.
+    _ SECT. XIIII.
 
-1. SECT. XVI.
+    _ SECT: XV.
+
+    _ SECT. XVI.
 
 **Types of content**
 
